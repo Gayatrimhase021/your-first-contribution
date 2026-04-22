@@ -1,4 +1,4 @@
-# About Me - Vaibhavi Hole
+# About Me - Mhase gayatri
 
 ![Gayatri mhase](https://avatars.githubusercontent.com/u/236081341?v=4)
 
